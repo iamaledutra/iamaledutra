@@ -26,7 +26,7 @@ Sou Cientista de Dados com experiência no desenvolvimento de modelos preditivos
 📍 São Paulo, Brasil  
 📧 [alexandre.dutra@gmail.com](mailto:aledutradealmeida@gmail.com)  
 🔗 [LinkedIn](https://linkedin.com/in/aledutradealmeida)
-🖥️ [Medium](https://medium.com/@alexandredutra)  
+🖥️ [Medium](https://medium.com/@aledutradealmeida)  
 
 ---
 
